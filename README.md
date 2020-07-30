@@ -1,4 +1,5 @@
-### Hi there 👋
+# Rushikesh Joshi (Reeshi)
+Pronouns: He/Him/His
 
 <!--
 **reeshijoshi/reeshijoshi** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
