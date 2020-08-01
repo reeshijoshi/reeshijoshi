@@ -1,6 +1,9 @@
 # Rushikesh Joshi (Reeshi)
+
 [Pronouns](https://www.cultureamp.com/blog/sharing-gender-pronouns-at-work/): He/Him/His
+
 :e-mail: reeshijoshi@gmail.com / joshiru@tcd.ie <br/>
+
 :iphone: +91 98346 10924 / +353 8340 34506
 
 ## About Me
